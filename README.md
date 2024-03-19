@@ -1,0 +1,1 @@
+Cu fiecare element, de la layout-ul elegant până la tonalitățile calde și primitorare, site-ul meu transmite echilibrul perfect între estetică și funcționalitate. Mai mult decât un simplu portal online, acesta devine un loc de întâlnire între aspirațiile clienților și visurile de frumusețe și confort pe care le urmăresc să le realizeze.
